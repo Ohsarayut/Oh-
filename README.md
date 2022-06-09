@@ -1,0 +1,2 @@
+# Oh-
+Friendly, Trustable, Kindness 
